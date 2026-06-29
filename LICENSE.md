@@ -1,4 +1,4 @@
-# 
+# break a brainrot egg custom Script is the best break a brainrot egg Script, featuring auto-upgrade and invisibility. Safe and powerful for all your
 
 
 
